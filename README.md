@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @UltimateZapz
+- 👀 I’m interested in Ultimate Frisbee
+- 🌱 I’m currently learning Computer Engineering
+- 💞️ I’m looking to collaborate on a school project
+- 📫 How to reach me: Don't
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I like music
